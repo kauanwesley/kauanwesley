@@ -9,7 +9,7 @@ Aqui estão algumas ideias para você começar:
 - 👯 Procuro colaborar com que eu posso fazer
 - 🤔 Estou procurando ajuda de DEUS, PORQUE SÓ DEUS A CAUSA
 - 💬 Pergunte-me sobre nada
-- 📫 Como entrar em contato comigo: me sigue no instagram @KAUANFW07
-- 😄 Pronomes: chose🙅🏽‍♂️🤙🏽🙅🏽‍♂️🤙🏽🙅🏽‍♂️🤙🏽🙅🏽‍♂️🤙🏽
+- 📫 Como entrar em contato comigo: me sigue no instagram @kauanfw07
+- 😄 Pronomes: CHOSEM🙅🏽‍♂️🤙🏽🙅🏽‍♂️🤙🏽🙅🏽‍♂️🤙🏽🙅🏽‍♂️🤙🏽
 - ⚡ Curiosidade: NEGO DOCE LINDO
 -->![](https://media.tenor.com/8KHtJqQa60oAAAAM/choices-sesamo.gif)
